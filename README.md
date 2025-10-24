@@ -24,3 +24,4 @@ I like big butts and I cannot lie
 - I AM A MINOR
 
   I love my parents.
+  this is only organized bc I wanted it to be very neat
