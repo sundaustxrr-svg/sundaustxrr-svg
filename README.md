@@ -18,3 +18,9 @@ I like big butts and I cannot lie
 
 - I am adopted by 4 parents online
 - I like myself(again) 
+- My strawpage has more info ig
+  
+- DNI PEDOS, WEIRDOS AND CREEPS!!
+- I AM A MINOR
+
+  I love my parents.
