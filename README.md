@@ -43,4 +43,4 @@ as a Tommyinnit kinnie,I'd prefer if you used he-they pronouns. He more preferab
 - Kale(yes, he is vegetable.) is more on the masculine side, often who I feel more associated with when I'm just feeling negative energy like sadness or just miss someone.
 - Clover is all three combined, but when I'm age regressing. more childish and baby talks through text and speech.
 
-this is different from being a system as I am not, this is more so for distinguishing what I feel at the moment, I just happened to give them a name so they would feel a bit more important to me. these four have been what I've been feeling all my life and I just now gave them names because it's kinda silly.
+this is different from being a system as I am not, this is more so for distinguishing what I feel at the moment, I just happened to give them a name so they would feel a bit more important to me. these four(expect Tommy as he is very recently named and formed bc of watching the British boy, I stole his personality hehehehehehehe) have been what I've been feeling all my life and I just now gave them names because it's kinda silly.
