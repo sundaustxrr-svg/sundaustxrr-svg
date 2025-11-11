@@ -38,9 +38,9 @@ mansplain, manipulate, manwhores my way out of any of any mess/j💅
 
 as a Tommyinnit kinnie,I'd prefer if you used he-they pronouns. He more preferably and being known as a they would be quite nice but i do would like to bring up other personas.
 
-Tommy(yes, Tommyinnit), refer to me as Tommy if you would like to talk to me, or the fictionkin side.
-Sunny is a more feminine persona but prefers they-them pronouns. they're more so who I'd like to be referred as if you want to talk about my personal life rather than the fictionkin of c!Tommy as Tommy does tend to rather talk about canonical lore and/or generally yap about random stuff.
-Kale(yes, he is vegetable.) is more on the masculine side, often who I feel more associated with when I'm just feeling negative energy like sadness or just miss someone.
-Clover is all three combined, but when I'm age regressing. more childish and baby talks through text and speech.
+- Tommy(yes, Tommyinnit), refer to me as Tommy if you would like to talk to me, or the fictionkin side.
+- Sunny is a more feminine persona but prefers they-them pronouns. they're more so who I'd like to be referred as if you want to talk about my personal life rather than the fictionkin of c!Tommy as Tommy does tend to rather talk about canonical lore and/or generally yap about random stuff.
+- Kale(yes, he is vegetable.) is more on the masculine side, often who I feel more associated with when I'm just feeling negative energy like sadness or just miss someone.
+- Clover is all three combined, but when I'm age regressing. more childish and baby talks through text and speech.
 
 this is different from being a system as I am not, this is more so for distinguishing what I feel at the moment, I just happened to give them a name so they would feel a bit more important to me. these four have been what I've been feeling all my life and I just now gave them names because it's kinda silly.
