@@ -28,7 +28,10 @@ mansplain, manipulate, manwhores my way out of any of any mess/j💅
 
 
  
- might be verbal or non verbal so please pleaseI am paranoid, I see things that aren't there, not often but I'll tell you if I see them and I get scared because of them. I don't like them. sometimes I see things in the dark, like eyes, keep an eye out for these conversations. 
+ might be verbal or non verbal so please please iwec
+
+
+ I am paranoid, I see things that aren't there, not often but I'll tell you if I see them and I get scared because of them. I don't like them. sometimes I see things in the dark, like eyes, keep an eye out for these conversations. 
 
  
  do not bring up my past trauma. it's a simple boundary. do not until I say that I would like to talk about it.
