@@ -1,4 +1,4 @@
-## I am Sundau Star, a Tommyinnit fictionkin (c! and cc!)!!
+## I am Sundau(Sunday js misspelled), a Tommyinnit fictionkin (c! cc!)!!
 
 INTERACT UNLESS ON DNI 😋
 
