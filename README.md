@@ -1,11 +1,11 @@
-## I am Seth, formerly Sunny, a Tommyinnit kinnie (c! cc!)!!
+## I am Kye, formerly Sunny, a Tommyinnit kinnie (c! cc!)!!
 
 INTERACT UNLESS ON DNI 😋
 
 - I like big butts and I cannot lie
 
 
- I am Seth, I am usually a hyper child as I do have autism and I often bring it up incase people forget since some have and said I'm annoying as I have stated I am diagnosed.
+ I am Kye, I am usually a hyper child as I do have autism and I often bring it up incase people forget since some have and said I'm annoying as I have stated I am diagnosed.
 
  
  remember, I am diagnosed, and energetic. if you do not want to deal with someone who has too much energy then just don't talk to me.
