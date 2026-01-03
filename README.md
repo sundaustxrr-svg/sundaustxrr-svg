@@ -38,7 +38,6 @@ mansplain, manipulate, manwhores my way out of any of any mess/j💅
 
 ## FANDOMS
 - DSMP
-- GENSHIN
 - WELCOME HOME
 - FNAF
 - POPPY PLAYTIME
