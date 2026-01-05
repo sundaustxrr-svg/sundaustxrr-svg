@@ -14,7 +14,8 @@
  I AM A MINOR.
 
 
-![17676100408722513694053518396702](https://github.com/user-attachments/assets/f0362fad-36e6-42ed-8652-eb8c026945d3)
+![17676110315643739188189304319591](https://github.com/user-attachments/assets/212234da-7314-4168-9791-d156b3e8955e)
+
 
 hi, I also go by Tommy as a fictionkin :>
 
