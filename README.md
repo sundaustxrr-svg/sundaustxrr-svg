@@ -21,7 +21,7 @@ hi, I also go by Tommy as a fictionkin :>
 
 int: Phil + Techno pls, Bench trio, Wilburs iwc but does not limit to wss since i am both nwss and nsss.
 
-dni: toxic wss+sss, creeps +weirdos(the bad kind bc we all r weirdos), anti-agere, anti-alterhuman, literally anyone that's so toxic about people finding happiness/coping mechanisms
+dni part two: toxic wss+sss, creeps +weirdos(the bad kind bc we all r weirdos), anti-agere, anti-alterhuman, literally anyone that's so toxic about people finding happiness/coping mechanisms
 -age regressor
 
 
@@ -33,3 +33,6 @@ silly/autistic child
 also i forgot to say hi.
 
 i also forgot to mention i fall down the stairs too often, please bandage me up
+
+
+(btw techno kinnie hehe...anarchy and arson)
