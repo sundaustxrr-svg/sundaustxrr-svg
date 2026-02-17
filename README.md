@@ -9,6 +9,7 @@ STARSTRUCK INQUIRIES
 
 
 UH MAIN FRONTERS CONSIST OF  SUNNY(HOST), KYE AND ASCH (CO-HOSTS) NICO, AND CLOVER
+
 Also Reigns the trauma holder 😁
 
 
@@ -17,7 +18,7 @@ Also Reigns the trauma holder 😁
 - WELCOME HOME
 - FNAF
 - POPPY PLAYTIME
-- EPIC(KINDA)
+- PJO
 
 
 ## DNI
@@ -34,10 +35,9 @@ hi, I also go by Tommy as a fictionkin :>
 int: Phil + Techno pls, Bench trio, Wilburs iwc but does not limit to wss since i am both nwss and nsss.
 
 dni part two: toxic wss+sss, creeps +weirdos(the bad kind bc we all r weirdos), anti-agere, anti-alterhuman, literally anyone that's so toxic about people finding happiness/coping mechanisms
--age regressor
 
 
-silly/autistic child 
+-silly/autistic child 
 
 ![17676100408722513694053518396702](https://github.com/user-attachments/assets/e0f98e53-897f-420b-8372-7fc198a3e697)
 
