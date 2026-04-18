@@ -1,24 +1,10 @@
-## I.. I forgot but NAMES KYE
+## Will I ever be free?
 
 
-HI WERE A SYSTEM NOW(IDK WE HS FOUND OUT A FEW WEEKS AGO AND GOT A DIAGNOSIS(ISH IT UNDER DOCUMENT INVESTIGATION AND ALLAT BUT STILL) YIPPEEE(?))
+HI WERE A SYSTEM(OFFICIALLY DIAGNOSED
 
 
-OSDD-1B SYSTEM,
-NO OFFICIAL SYS NAME WHO SAID THAT
-
-
-UH MAIN FRONTERS CONSIST OF, KYE AND ASCH ((CO)HOSTS) AND NICO(SUNNYS DEAD.) 
-
-Also Reigns the trauma holder 😁
-WE DON'T LIKE HIM THAT MUCH
-
-## FANDOMS
-- DSMP
-- WELCOME HOME
-- FNAF
-- POPPY PLAYTIME
-- PJO
+OSDD-1A SYSTEM,(I misheard and thought it said osdd-1b🥲)
 
 
 ## DNI
@@ -27,9 +13,6 @@ WE DON'T LIKE HIM THAT MUCH
 
 
 ![17676110315643739188189304319591](https://github.com/user-attachments/assets/212234da-7314-4168-9791-d156b3e8955e)
-
-
-hi, I also go by Tommy as a fictionkin :>
 
 
 int: Phil + Techno pls, Bench trio, Wilburs iwc but does not limit to wss since i am both nwss and nsss.
@@ -46,5 +29,3 @@ also i forgot to say hi.
 
 i also forgot to mention i fall down the stairs too often, please bandage me up
 
-
-(btw techno kinnie hehe...anarchy and arson)
