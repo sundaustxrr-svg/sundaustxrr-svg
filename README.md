@@ -28,7 +28,7 @@
 - QSMP
 - Welcome Home
 - Genshin Impact
--  <img width="332" height="158" alt="Screenshot 2026-04-02 192457" src="https://github.com/user-attachments/assets/e542e083-93f3-45bb-b6be-f14291af802d" />
+  <img width="332" height="158" alt="Screenshot 2026-04-02 192457" src="https://github.com/user-attachments/assets/e542e083-93f3-45bb-b6be-f14291af802d" />
 
 
 anyone int unless name specifies, dniuc/f if already sitting with someone
@@ -51,6 +51,11 @@ Philza- Techno(semi-romantic emerald duo/ platonic emerald duo),
 Tommyinnit, Missa, Wilburs iwc
 
 Sys Alter Skins- anyone int but preferably friends
+
+example of alter skin(Macaroni)
+
+<img width="168" height="208" alt="pony-town-Macaroni-stand-toy422-4x" src="https://github.com/user-attachments/assets/8b9c1f9b-ac47-4d44-8eb1-e0c0106d9608" />
+
 
 
 ## Do not force ships on me, you will be blocked.
