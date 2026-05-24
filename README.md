@@ -9,6 +9,11 @@
 - possibly freaky
 - socially active
 
+  proof of social interactions
+
+<img width="230" height="266" alt="Screenshot 2026-05-22 061501" src="https://github.com/user-attachments/assets/e556f917-7f72-4994-9c84-714290bd414d" />
+
+
 
 ## DNI
 - Pedophiles, homophobes, islamophobes, anti-furries, anti-therians, anti-agere/petre
@@ -23,6 +28,7 @@
 - QSMP
 - Welcome Home
 - Genshin Impact
+-  <img width="332" height="158" alt="Screenshot 2026-04-02 192457" src="https://github.com/user-attachments/assets/e542e083-93f3-45bb-b6be-f14291af802d" />
 
 
 anyone int unless name specifies, dniuc/f if already sitting with someone
