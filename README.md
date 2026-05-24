@@ -29,12 +29,21 @@ anyone int unless name specifies, dniuc/f if already sitting with someone
 
 
 Zanka- Rudo, Enjin, Cleaners HQ, Jabbers iwc
+
 Sethos- 4ggravate, Sumeru Gang
+
 Lyney- Lynette & Freminet, Arles on iwc duee to personal experiences
+
 Lynette- Lyney & Freminet
+
 Freminet- Lyney & Lynette
+
 Tommyinnit- Techno, Phil, Tubbo, Ranboo, Wilburs iwc
-Philza- Techno(semi-romantic emerald duo/ platonic emerald duo), Tommyinnit, Missa, Wilburs iwc
+
+Philza- Techno(semi-romantic emerald duo/ platonic emerald duo),
+
+Tommyinnit, Missa, Wilburs iwc
+
 Sys Alter Skins- anyone int but preferably friends
 
 
