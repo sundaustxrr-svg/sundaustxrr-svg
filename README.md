@@ -1,31 +1,44 @@
-## Will I ever be free?
+<img width="1280" height="720" alt="22842" src="https://github.com/user-attachments/assets/4239540b-bd38-4f8a-81d0-790201ed8eaa" />
 
 
-HI WERE A SYSTEM(OFFICIALLY DIAGNOSED
+## Details about.. Experiment 13 9 19 9 1
 
 
-OSDD-1A SYSTEM,(I misheard and thought it said osdd-1b🥲)
+- OSDD 1-a
+- autistic
+- possibly freaky
+- socially active
 
 
 ## DNI
-- DNI PEDOS, WEIRDOS AND CREEPS!!
- I AM A MINOR.
+- Pedophiles, homophobes, islamophobes, anti-furries, anti-therians, anti-agere/petre
+- toxic people in general
+- Sethoscara/anyship that includes sethos
+- Janka, Zanka is a minor until the manga confirms he turned 18
+  
+
+## Interests and Ints
+- Gachiakuta
+- DSMP
+- QSMP
+- Welcome Home
+- Genshin Impact
 
 
-![17676110315643739188189304319591](https://github.com/user-attachments/assets/212234da-7314-4168-9791-d156b3e8955e)
+anyone int unless name specifies, dniuc/f if already sitting with someone
 
 
-int: Phil + Techno pls, Bench trio, Wilburs iwc but does not limit to wss since i am both nwss and nsss.
+Zanka- Rudo, Enjin, Cleaners HQ, Jabbers iwc
+Sethos- 4ggravate, Sumeru Gang
+Lyney- Lynette & Freminet, Arles on iwc duee to personal experiences
+Lynette- Lyney & Freminet
+Freminet- Lyney & Lynette
+Tommyinnit- Techno, Phil, Tubbo, Ranboo, Wilburs iwc
+Philza- Techno(semi-romantic emerald duo/ platonic emerald duo), Tommyinnit, Missa, Wilburs iwc
+Sys Alter Skins- anyone int but preferably friends
 
-dni part two: toxic wss+sss, creeps +weirdos(the bad kind bc we all r weirdos), anti-agere, anti-alterhuman, literally anyone that's so toxic about people finding happiness/coping mechanisms
+
+## Do not force ships on me, you will be blocked.
 
 
--silly/autistic child 
-
-![17676100408722513694053518396702](https://github.com/user-attachments/assets/e0f98e53-897f-420b-8372-7fc198a3e697)
-
-
-also i forgot to say hi.
-
-i also forgot to mention i fall down the stairs too often, please bandage me up
-
+<img width="206" height="186" alt="Screenshot 2026-05-22 051153" src="https://github.com/user-attachments/assets/7c26dbb1-5a31-4d0f-bcde-019a16e5d3e2" />
