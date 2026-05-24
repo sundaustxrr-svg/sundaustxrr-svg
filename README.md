@@ -18,6 +18,7 @@
 ## DNI
 - Pedophiles, homophobes, islamophobes, anti-furries, anti-therians, anti-agere/petre
 - toxic people in general
+- skin stealers
 - Sethoscara/anyship that includes sethos
 - Janka, Zanka is a minor until the manga confirms he turned 18
   
