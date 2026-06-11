@@ -67,4 +67,7 @@ example of alter skin(Macaroni)
 ## Do not force ships on me, you will be blocked.
 
 
-<img width="206" height="186" alt="Screenshot 2026-05-22 051153" src="https://github.com/user-attachments/assets/7c26dbb1-5a31-4d0f-bcde-019a16e5d3e2" />
+
+thank you for reading!
+
+<img width="736" height="413" alt="images" src="https://github.com/user-attachments/assets/1cc74097-acd8-4f39-b09b-a54a50e41c8f" />
