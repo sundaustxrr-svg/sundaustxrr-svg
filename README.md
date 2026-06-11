@@ -33,14 +33,18 @@
   <img width="332" height="158" alt="Screenshot 2026-04-02 192457" src="https://github.com/user-attachments/assets/e542e083-93f3-45bb-b6be-f14291af802d" />
 
 
-anyone int unless name specifies, dniuc/f if already sitting with someone
+## INTs!
 
 
 Zanka- Rudo, Enjin, Cleaners HQ, Jabbers iwc
 
+Tamsy- Cleaners HQ, ant int
+
+Zodyl- Raiders
+
 Sethos- 4ggravate, Sumeru Gang
 
-Lyney- Lynette & Freminet, Arles on iwc duee to personal experiences
+Lyney- Lynette & Freminet, Arles on iwc
 
 Lynette- Lyney & Freminet
 
