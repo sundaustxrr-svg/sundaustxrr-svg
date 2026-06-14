@@ -20,7 +20,8 @@
 - toxic people in general
 - skin stealers
 - Sethoscara/anyship that includes sethos
-- Janka, Zanka is a minor until the manga confirms he turned 18
+- Janka
+- c!sbi. JUST NO.
   
 
 ## Interests(fandoms)
@@ -36,14 +37,21 @@
 ## INTs!
 @pearlza will be prioritized(comf person and father)
 
+Tommyinnit- Techno, Phil, Tubbo, Ranboo, Wilburs iwc
+
+Philza- Techno(semi-romantic emerald duo/ platonic emerald duo), Tommyinnit, Missa, Wilburs iwc
+
+Chayanne- Philza, Missa, Talluhlah, Tilin, Wilburs iwec
 
 Zanka- Rudo, Enjin, Cleaners HQ, Jabbers iwc
 
 Tamsy- Cleaners HQ, ant int
 
-Zodyl- Raiders
+Zodyl- Raiders, any int
 
 Sethos- 4ggravate, Sumeru Gang
+
+Kaveh- 5pread, Sumeru Gang, Haikaveh/kavehtham
 
 Lyney- Lynette & Freminet, Arles on iwc
 
@@ -51,17 +59,7 @@ Lynette- Lyney & Freminet
 
 Freminet- Lyney & Lynette
 
-Tommyinnit- Techno, Phil, Tubbo, Ranboo, Wilburs iwc
-
-Philza- Techno(semi-romantic emerald duo/ platonic emerald duo),
-
-Tommyinnit, Missa, Wilburs iwc
-
 Sys Alter Skins- anyone int but preferably friends
-
-example of alter skin(Macaroni)
-
-<img width="168" height="208" alt="pony-town-Macaroni-stand-toy422-4x" src="https://github.com/user-attachments/assets/8b9c1f9b-ac47-4d44-8eb1-e0c0106d9608" />
 
 
 
