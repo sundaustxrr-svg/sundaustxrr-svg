@@ -23,7 +23,7 @@
 - Janka, Zanka is a minor until the manga confirms he turned 18
   
 
-## Interests and Ints
+## Interests(fandoms)
 - Gachiakuta
 - DSMP
 - QSMP
@@ -34,6 +34,7 @@
 
 
 ## INTs!
+@pearlza will be prioritized(comf person and father)
 
 
 Zanka- Rudo, Enjin, Cleaners HQ, Jabbers iwc
